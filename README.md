@@ -35,7 +35,7 @@ Are you looking for:
 📧 **Contact me via email**: [My Email](mailto:abad.naseerfast@gmail.com)  
 💼 **Hire me on Fiverr**: [My Fiverr Profile](https://www.fiverr.com/john_webifypro)  
 👨‍💻 **Hire me on Upwork**: [My Upwork Profile](https://www.upwork.com/freelancers/~014f1d563a353a0012?mp_source=share) 
-💬 **Message me on LinkedIn**: [Your LinkedIn Profile](https://www.linkedin.com/in/abadnaseer/)
+💬 **Message me on LinkedIn**: [My LinkedIn Profile](https://www.linkedin.com/in/abadnaseer/)
 
 ---
 
